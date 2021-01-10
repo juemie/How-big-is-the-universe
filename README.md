@@ -86,7 +86,7 @@
 
 ![image-20210101284301284.png](https://i.loli.net/2021/01/10/TGMPaqAkLDEmIXh.png)
 
-![image-20210109085327668](C:\Users\juemie\Desktop\宇宙到底有多大.assets\image-20210109085327668.png)
+![image-20210101284301298.png](https://i.loli.net/2021/01/10/z28QNloJ7xBw1kT.png)
 
 太阳系外围还有着矮行星
 
