@@ -25,8 +25,8 @@
 他们是除了太阳以外在太阳系内的老大哥了
 
 木星目前已经知道的卫星数量为79
+![image-202101082313321396.png](https://i.loli.net/2021/01/10/2mjCKLcPySvd8Z5.png)
 
-![image-20210108232533822](C:\Users\juemie\Desktop\宇宙到底有多大.assets\image-20210108232533822.png)
 
 其中木卫二
 
