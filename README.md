@@ -134,25 +134,25 @@
 
 这关于一点以后我们有机会再谈
 
-![image-20210108230635914](C:\Users\juemie\Desktop\宇宙到底有多大.assets\image-20210108230635914.png)
+![image-20210110201067935.png](https://i.loli.net/2021/01/10/U85ZePogCicsLhj.png)
 
 下面这张图是以一个很远的视角来看银河系
 
-![image-20210110201040935](C:\Users\juemie\Desktop\宇宙到底有多大.assets\image-20210110201040935.png)
+![image-20210110201067935.png](https://i.loli.net/2021/01/10/MCrxyLU2kG61sWj.png)
 
 图上其他的光点为星系或者星团或者星云
 
 星系也有着小弟的,星团和星云就是
 
-![image-20210110201205710](C:\Users\juemie\Desktop\宇宙到底有多大.assets\image-20210110201205710.png)
+![image-20210110201205710.png](https://i.loli.net/2021/01/10/DcPt2XaFvWhs6NC.png)
 
-![image-20210110202209316](C:\Users\juemie\Desktop\宇宙到底有多大.assets\image-20210110202209316.png)
+![image-20210110202209316.png](https://i.loli.net/2021/01/10/5AkDVfOi2bPKqY3.png)
 
 可能诞生在星团的文明很特殊吧
 
 下面是星云
 
-![image-20210110201938550](C:\Users\juemie\Desktop\宇宙到底有多大.assets\image-20210110201938550.png)
+![image-20210110201938550.png](https://i.loli.net/2021/01/10/9aRMcZAL4hNGOjP.png)
 
 星系作为宇宙的单位是完全可以的
 
@@ -160,7 +160,7 @@
 
 下图中心为银河
 
-![image-20210110204339079](C:\Users\juemie\Desktop\宇宙到底有多大.assets\image-20210110204339079.png)
+![image-20210110204339079.png](https://i.loli.net/2021/01/10/1W2Zhzg5pqNv93I.png)
 
 根据观察结果银河系还是一大家族的成员之一
 
