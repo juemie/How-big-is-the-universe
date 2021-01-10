@@ -14,7 +14,7 @@
 
 首先这是我们的地球
 
-![image-20210108231339496](C:\Users\juemie\Desktop\宇宙到底有多大.assets\image-20210108231339496.png)
+https://sm.ms/image/D6weJCZGsf4y8rz
 
 天文学上定义:地球到太阳的平均距离为一个天文单位
 
